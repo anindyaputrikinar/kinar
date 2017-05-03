@@ -1,5 +1,5 @@
-## Selamat Datang Di Websitenya Kinar
+## Anindya Putri Kinar
 
-Website Kinar: http://anaknya.okidwiyulianto.com
+Selamat datang di websitenya Kinar. http://anaknya.okidwiyulianto.com
 
 Email: kinar@okidwiyulianto.com
