@@ -1,4 +1,4 @@
-## Video BLog Pertama Kinar
+## Video Blog Pertama Kinar
 
 Halo teman-teman di sini Kinar akan berbagai pengalaman dan cerita. Hari ini Kinar baru aja belajar membuat video blog sendiri. Penasaran pengen liat video blog Kinar yang pertama? Liat videonya di bawah ini ya?
 
